@@ -1,7 +1,4 @@
-Massive foodie, anything involving chicken and the chances are I've eaten there :poultry_leg: 
-
-Avid gym goer. when not eating or working, you will most likely catch me at the gym :muscle: 
-
-Weekly hair cuts, this flat top aint easy yo! :barber:
-
-Very career driven :boom:
+- Massive foodie, anything involving chicken and the chances are I've eaten there :poultry_leg: 
+- Avid gym goer. when not eating or working, you will most likely catch me at the gym :muscle: 
+- Weekly hair cuts, this flat top aint easy yo! :barber:
+- Very career driven :boom:
