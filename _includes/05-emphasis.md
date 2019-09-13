@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+Great with people, I enjoy interacting with others on a daily basis. Every one of my jobs since leaving college have been **very customer facing**
