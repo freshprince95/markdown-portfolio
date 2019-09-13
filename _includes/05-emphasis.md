@@ -1,1 +1,3 @@
-Great with people, I enjoy interacting with others on a daily basis. Every one of my jobs since leaving college have been **very customer facing**
+- I'm great with people, I enjoy interacting with others on a daily basis. **Every** one of my positions since leaving college has been customer facing
+- I am extremely driven. With anything that I put my mind to I give 110% commitment. This doesn't only apply in a professional environment, but also with hobbies outside of work.
+- I am very professionally proud. Similarly to always giving 110% commitment, I will always do all that I can to ensure that I leave a great impression on whoever I am working with whether this be a coworker, or an external customer
